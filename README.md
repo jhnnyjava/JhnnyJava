@@ -1,4 +1,4 @@
-Hi there! 👋 I'm Sumba John Khaemba
+**Hi there! 👋 I'm Sumba John Khaemba**
 
 🚀 About Me
 
